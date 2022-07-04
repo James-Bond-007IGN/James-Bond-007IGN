@@ -18,6 +18,8 @@ https://www.ignboards.com/members/carlos-blanka.96560410/ (carlos blanka, não c
 
 @Animal_Preparado
 
+@UncleJunior
+
 @garotocabecudo (esse aqui é bem claro os fakes e acaba sendo meio de comédia, mas resolvi incluir)
 
 ///
