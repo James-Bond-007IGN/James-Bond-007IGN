@@ -22,6 +22,8 @@ https://www.ignboards.com/members/carlos-blanka.96560410/ (carlos blanka, não c
 
 @garotocabecudo (esse aqui é bem claro os fakes e acaba sendo meio de comédia, mas resolvi incluir)
 
-@Andrey_DKS (fake conspiracionista, força tanto que fica óbvio que é fake)
+@Andrey_DKS (fake de conspiracionista, força tanto que fica óbvio que é fake)
+
+@Dev_Chad 
 
 ///
