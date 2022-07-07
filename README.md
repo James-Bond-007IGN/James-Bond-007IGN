@@ -14,7 +14,7 @@ Harp em mais seus diversos nicks (em alguns ele se identifica)
 
 @Konoiyokan (apropriação, não é o do politz)
 
-https://www.ignboards.com/members/carlos-blanka.96560410/ (carlos blanka, não consigo citar por @ esse, apropriação, não é o do uol)
+https://www.ignboards.com/members/carlos-blanka.96560410/ (apropriação, não é o do uol)
 
 @.Vegeta
 
