@@ -26,6 +26,6 @@ https://www.ignboards.com/members/carlos-blanka.96560410/ (carlos blanka, não c
 
 @Dev_Chad 
 
-@~koIum~ (impostor, o kolum ainda posta no IGN com a dele)
+https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta no IGN com a dele)
 
 ///
