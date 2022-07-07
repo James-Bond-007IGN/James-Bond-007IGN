@@ -28,4 +28,6 @@ https://www.ignboards.com/members/carlos-blanka.96560410/ (carlos blanka, não c
 
 https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta no IGN com a dele)
 
+@BCFF11 (provavelmente trampa com TI mesmo, mas inventa salário, medo de demissão e ir morar na rua, de querer ser gari concursado, morar em kitnet, e mais diversas outras coisas, quase totalmente personagem mesmo que tenha algo real)
+
 ///
