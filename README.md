@@ -34,4 +34,9 @@ https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta 
 
 Zovievsk (clone do harp)
 
+
+@Pagliaccitto : Clone, provavelmente do harp ou outro cloneiro do tipo.
+ 
+
+
 ///
