@@ -32,10 +32,11 @@ https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta 
 
 @BCFF11 (provavelmente trampa com TI mesmo, mas inventa salário, medo de demissão e ir morar na rua, de querer ser gari concursado, morar em kitnet, e mais diversas outras coisas, quase totalmente personagem mesmo que tenha algo real)
 
-Zovievsk (clone do harp)
+@Zovievsk (clone do harp)
 
+@Pagliaccitto : clone do harp
 
-@Pagliaccitto : Clone, provavelmente do harp ou outro cloneiro do tipo.
+@Lock_Street personagem antigo e sem graça, provavelmente do farofas
  
 
 
