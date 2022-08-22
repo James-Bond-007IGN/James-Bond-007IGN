@@ -38,6 +38,8 @@ https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta 
 
 @Lock_Street personagem antigo e sem graça, provavelmente do farofas
  
+@playboy_fazendeiro
 
+@nao.sou.o.xemolhos   e    @Xemolhos.Addams    Se passando pelo @Sol_Inca vulgo xemolhos
 
 ///
