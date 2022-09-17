@@ -44,4 +44,6 @@ https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta 
 
 @AnísioSilva https://www.ignboards.com/threads/pelo-menos-vcs-nao-moram-num-cortico-ficam-reclamando-da-vida-nos-seus-quartinhos-confortaveis-com-papai-e-mamae-bancando.456300829/post-532813584
 
+ @odeiopobreza e @ALERGICO_A_POBRE fake de riqueza
+
 ///
