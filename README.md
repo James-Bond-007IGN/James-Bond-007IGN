@@ -47,5 +47,7 @@ https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta 
  @odeiopobreza e @ALERGICO_A_POBRE fake de riqueza
  
  @momokan
+ 
+ @LittleBusters! ele não vai ser pai
 
 ///
