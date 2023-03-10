@@ -51,5 +51,8 @@ https://www.ignboards.com/members/koium.96583349 (impostor, o kolum ainda posta 
  @LittleBusters! ele não vai ser pai
  
  @IvyBridge fakezeiro de msols e balzacas
+ 
+ @FinoSenhores
+
 
 ///
